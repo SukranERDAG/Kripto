@@ -1,0 +1,2 @@
+# Kripto
+süper seri 
